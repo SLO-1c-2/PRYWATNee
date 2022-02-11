@@ -1,0 +1,2 @@
+# PRYWATNee
+nie wchodz 
